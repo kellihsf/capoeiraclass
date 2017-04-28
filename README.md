@@ -9,3 +9,5 @@ dance class rules:
 2. be uncoordinated
 3. be into weird dancing
 4. have $19.99 for the DVD
+
+there are so many things today
