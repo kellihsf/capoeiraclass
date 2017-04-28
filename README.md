@@ -11,3 +11,4 @@ dance class rules:
 4. have $19.99 for the DVD
 
 there are so many things today
+so many
