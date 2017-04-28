@@ -7,3 +7,4 @@ Tina's dance karate class
 dance class rules:
 1. have smelly feet
 2. be uncoordinated
+3. be into weird dancing
