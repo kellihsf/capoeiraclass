@@ -11,6 +11,4 @@ dance class rules:
 4. have $19.99 for the DVD
 5. enjoy karate and dance
 
-there are so many things today
-so many
- why
+there are so many things today. WHY
