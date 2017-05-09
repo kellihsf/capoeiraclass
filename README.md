@@ -10,7 +10,3 @@ dance class rules:
 3. be into weird dancing
 4. have $19.99 for the DVD
 5. enjoy karate and dance
-
-there are so many things today. WHY
-PR testing. again.
-this is a test too. 
