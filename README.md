@@ -11,4 +11,4 @@ dance class rules:
 4. have $19.99 for the DVD
 5. enjoy karate and dance
 
-wat123
+hey there.
